@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Timoski-Gantovich but you can call me Tim
 - 👀 I’m interested in Graphic Design, Web Design and UX
-- 🌱 I’m currently working as a UX Specialist at bp
+- 🌱 I’m currently looking for my next position
 - 💞️ I’m looking to collaborate on nothing at the moment 
 - 📫 How to reach me: mingledprism4@gmail.com
 
